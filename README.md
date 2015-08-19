@@ -14,7 +14,7 @@ Now is the time to leave your indelible mark on what will eventually become a co
 
 **Take your time.** Think of what you want to say about your current feelings, the internship you've had, the friends you've met, or how annoying it was to have your car window smashed that one time in Foggy Bottom. You're all creative folks. This is a constrained writing exercise, and you will come up with something that others find interesting.
 
-Only post your own, original Haiku. No comments from the peanut gallery please! Encourage other interns who have not yet posted to not *miss a deadline*.
+Only post your own original Haiku. No comments from the peanut gallery please! Encourage other interns who have not yet posted to not *miss a deadline*.
 
 Thanks,
 
